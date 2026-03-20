@@ -1,3 +1,6 @@
-                                       " yeah, we're in this together till the end "
+                                              <3
 
-<img width="966" height="582" alt="image" src="https://github.com/user-attachments/assets/f025b83c-8af4-4171-b21f-d937ecaae853" />
+<img width="792" height="491" alt="image" src="https://github.com/user-attachments/assets/e111019a-0138-4ad5-8553-5965fa7a1067" />                                    
+
+
+ 
